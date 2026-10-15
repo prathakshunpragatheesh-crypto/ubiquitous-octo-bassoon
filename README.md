@@ -1,2 +1,6 @@
-
-My name is PRATHAKSHUN T. I am from Tamil Nadu. I have completed my higher secondary education with 439 marks out of 500. Currently, I am pursuing my first year of Electronics and Communication Engineering (ECE) at St. Joseph's College of Engineering.  I chose ECE because I am interested in electronics, communication systems.
+My name is PRATHAKSHUN T, and I am from Tamil Nadu. I am currently pursuing my first year of Electronics and Communication Engineering (ECE) at St. Joseph's College of Engineering. I completed my higher secondary education with 439 marks out of 500.
+I am an enthusiastic and hardworking student who is interested in learning new things, especially in electronics, programming, and modern technologies. I want to develop both my technical knowledge and communication skills to become a successful engineer.
+My strengths are self-motivation, a willingness to learn, teamwork, and a positive attitude. I believe that every challenge is an opportunity to learn something new and improve myself.
+My hobbies include listening to music, exploring new technologies, and spending time with my friends and family. I am also interested in learning programming languages and discovering how technology can solve real-world problems.
+My short-term goal is to perform well in my academics, improve my skills, and gain practical experience. My long-term goal is to become a successful engineer and establish a good career in a reputed company.
+My motto is to keep learning, stay positive, and work hard to achieve my goals. I believe that with dedication, confidence, and continuous improvement, I can turn my dreams into reality.
